@@ -1,4 +1,4 @@
-
+secure sol's rng Scripts offers the most advanced sol's rng Script, with silent aim and private server access. Perfect for dominating any match.
 
 
 
